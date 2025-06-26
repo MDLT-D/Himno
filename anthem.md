@@ -16,6 +16,6 @@ un soldado en cada hijo te dio.
 Mexicanos, al grito de guerra
 El acero aprestad y el bridón;
 Y retiemble en sus centros la tierra
-Al sonoro tronar del cañón.
+Al sonoro rugir del cañón.
 Y retiemble en sus centros la tierra
 Al sonoro rugir del cañón.
