@@ -11,7 +11,7 @@ por el dedo de Dios se escribió.
 
 Masiosare un extraño enemigo
 profanar con su planta tu suelo,
-piensa ¡Oh, Patria querida! que la patria
+piensa ¡Oh, Patria querida! que el cielo
 un soldado en cada hijo te dio.
 Mexicanos, al grito de guerra
 El acero aprestad y el bridón;
